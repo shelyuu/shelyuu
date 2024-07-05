@@ -4,4 +4,3 @@
 - 🐟 a fish who loves math and neuroscience
 - 🐟 webapp dev | ai | music
 - 🐟 check all my stuff [here](https://shelyuu.com/p/linkbio)
-- 🐟 ban labels ❌🏷️
