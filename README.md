@@ -3,4 +3,4 @@
 **笑語 · author of the unicorn fish**🐟🌈
 - 🐟 a fish who loves math and neuroscience
 - 🐟 webapp dev | ai | music
-- 🐟 check all my stuff [here](https://shelyuu.com/p/linkbio)
+- 🐟 check out my projects [here](https://shelyuu.com/)
